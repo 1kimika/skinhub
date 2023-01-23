@@ -18,6 +18,9 @@
 # [Kid](https://subahibi.s-ul.eu/Whppsp3f)  
 ![screenshot025](https://user-images.githubusercontent.com/115696505/213930589-e63da1f2-cdca-4f81-97ad-744cce2416af.jpg)
 
+# [Kid aristia](https://subahibi.s-ul.eu/Gu1WWXmi)  
+![screenshot027](https://user-images.githubusercontent.com/115696505/214024143-f6bb637a-87ad-4632-a0fa-0d358b94b689.jpg)
+
 # [karcher tko recolour/edit](https://subahibi.s-ul.eu/YVt9IM1d)
 ![screenshot207](https://user-images.githubusercontent.com/115696505/205911813-82eae1c0-3bc7-4434-bd87-a3aa411b5fa5.jpg)
   
