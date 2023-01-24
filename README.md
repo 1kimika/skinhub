@@ -36,7 +36,7 @@
 # [subahibi mason](https://subahibi.s-ul.eu/UIBFvPqk)
 ![screenshot019](https://user-images.githubusercontent.com/115696505/213930576-06707ac0-7b2c-431b-a434-757a4c59af76.jpg)
 
-# [pixie reupload](https://subahibi.s-ul.eu/TEhz5i0x)
+# [pixie insta](https://subahibi.s-ul.eu/oymWpUqX)
 ![screenshot016](https://user-images.githubusercontent.com/115696505/213930569-80185e0d-b362-4d50-b445-45fc9bbbf8b2.jpg)
 
 # [unnamed (stellabee)](https://subahibi.s-ul.eu/AfrekAAT)
