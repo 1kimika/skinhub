@@ -15,6 +15,9 @@
 # [kimika default](https://subahibi.s-ul.eu/cfUc5aqi)  
 ![screenshot023](https://user-images.githubusercontent.com/115696505/213930601-7730bee4-b887-44e5-bf3d-545e5b7aca1c.jpg)
 
+# [kurai](https://subahibi.s-ul.eu/IIpb164Q)
+![screenshot033](https://user-images.githubusercontent.com/115696505/214649903-9c80e9b5-40a1-473b-9217-e94379225193.jpg)
+
 # [erm](https://subahibi.s-ul.eu/zIneIjLJ)  
 ![screenshot024](https://user-images.githubusercontent.com/115696505/213930594-9fd57be1-5b05-4056-9d08-4d3307e7c99c.jpg)
 
