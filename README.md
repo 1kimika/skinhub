@@ -9,6 +9,9 @@
 # [sora](https://subahibi.s-ul.eu/jS5q4DwR)  
 ![screenshot021](https://user-images.githubusercontent.com/115696505/213930611-14398b87-ad51-46a1-b3cf-06493b5d791d.jpg)
 
+# [sora elis](https://subahibi.s-ul.eu/ruYzXRB5)  
+![screenshot012](https://user-images.githubusercontent.com/115696505/213867541-6d1a861d-0a81-4e9e-b793-cd9a6776e352.jpg)
+
 # [master pro](https://subahibi.s-ul.eu/ziD3Cu8s)  
 ![screenshot031](https://user-images.githubusercontent.com/115696505/214445254-302f3b86-0f8a-44be-9a98-9e82262ddb6b.jpg)
  
