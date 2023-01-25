@@ -48,5 +48,11 @@
 # [pixie insta](https://subahibi.s-ul.eu/oymWpUqX)
 ![screenshot016](https://user-images.githubusercontent.com/115696505/213930569-80185e0d-b362-4d50-b445-45fc9bbbf8b2.jpg)
 
+# [bernkastel edit](https://subahibi.s-ul.eu/1DPevFQf)
+![screenshot035](https://user-images.githubusercontent.com/115696505/214710083-9dcfc3d8-9c05-4b26-b292-14c6518428ca.jpg)
+
+# [miku](https://subahibi.s-ul.eu/OJO75yKw)
+![screenshot209](https://user-images.githubusercontent.com/115696505/205918542-d84f1b66-518d-40a0-802e-e041c174ca3e.jpg)
+
 # [unnamed (stellabee)](https://subahibi.s-ul.eu/AfrekAAT)
 ![screenshot017](https://user-images.githubusercontent.com/115696505/213930403-c45f1fd6-9038-488a-b5aa-8776ffcd86b3.jpg)
