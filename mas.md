@@ -72,3 +72,6 @@
 # [souleater](https://subahibi.s-ul.eu/5szoIZp3)
 ![screenshot047](https://user-images.githubusercontent.com/115696505/216442328-5ae2a8bc-9cdb-49d7-a43c-8e941927f513.jpg)
 
+# [слюни на моем Джонсоне](https://subahibi.s-ul.eu/Cjb5BmJV)
+![screenshot050](https://user-images.githubusercontent.com/115696505/216593191-22a6f34e-3d36-4aa1-847c-a51d111aef5f.jpg)
+
