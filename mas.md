@@ -78,7 +78,7 @@
 # [rolling girl](https://subahibi.s-ul.eu/Pemm57jm)
 ![screenshot057](https://user-images.githubusercontent.com/115696505/216796526-fdf9cf32-2325-42ce-8945-15b8d82b2196.jpg)
 
-# [lain1](https://subahibi.s-ul.eu/XAjZ58ff)
+# [lain1]()
 ![screenshot062](https://user-images.githubusercontent.com/115696505/217674197-308011f6-9ca6-4a47-9483-829b14bcfff8.jpg)
 
 # [mi](https://subahibi.s-ul.eu/trXmcTjr)
