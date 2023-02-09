@@ -64,8 +64,8 @@
 ![screenshot044](https://user-images.githubusercontent.com/115696505/216438791-9c893985-e481-445d-a0ac-578a14b422ad.jpg)
 
 # [qp](https://subahibi.s-ul.eu/FN4EYRv1)
-![screenshot043](https://user-images.githubusercontent.com/115696505/216440025-6360504f-122b-49bd-b41d-07d6b91c6604.jpg)
-  
+![screenshot068](https://user-images.githubusercontent.com/115696505/217679350-c2204758-e960-4f33-b35f-4a96d17795e6.jpg)
+
 # [souleater uber](https://subahibi.s-ul.eu/uZS1xDIH)
 ![screenshot048](https://user-images.githubusercontent.com/115696505/216443856-73e95056-f4ff-4c2c-bf0f-cf528128a93f.jpg)
 
@@ -78,8 +78,8 @@
 # [rolling girl](https://subahibi.s-ul.eu/Pemm57jm)
 ![screenshot057](https://user-images.githubusercontent.com/115696505/216796526-fdf9cf32-2325-42ce-8945-15b8d82b2196.jpg)
 
-# [lain1]()
-![screenshot062](https://user-images.githubusercontent.com/115696505/217674197-308011f6-9ca6-4a47-9483-829b14bcfff8.jpg)
+# [lain1](https://subahibi.s-ul.eu/dmcoEeu2)
+![screenshot064](https://user-images.githubusercontent.com/115696505/217679246-185d8bd6-b991-4086-9688-a92e30e274f2.jpg)
 
 # [mi](https://subahibi.s-ul.eu/trXmcTjr)
 ![screenshot063](https://user-images.githubusercontent.com/115696505/217674704-36c43729-9b24-483f-b6a2-b929f401e87e.jpg)
