@@ -83,3 +83,7 @@
 
 # [mi](https://subahibi.s-ul.eu/trXmcTjr)
 ![screenshot063](https://user-images.githubusercontent.com/115696505/217674704-36c43729-9b24-483f-b6a2-b929f401e87e.jpg)
+  
+# [kimika](https://subahibi.s-ul.eu/Byy6UL4S) 
+![screenshot071](https://user-images.githubusercontent.com/115696505/218318720-7587605c-4f53-4645-b506-1a6d524dd25a.jpg)
+
