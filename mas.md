@@ -89,6 +89,3 @@
   
 # [mikuroll mas](https://subahibi.s-ul.eu/CcFXnFfQ) 
 ![screenshot072](https://user-images.githubusercontent.com/115696505/218329285-14863f3f-3544-463b-8b53-35fce83b81c2.jpg)
-
-# [valentine 2023](https://subahibi.s-ul.eu/1V0Pf6We) 
-![screenshot073](https://user-images.githubusercontent.com/115696505/218329315-c3436664-7ff8-4a2f-9b94-84108d1a206e.jpg)
