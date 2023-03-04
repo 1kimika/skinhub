@@ -97,5 +97,8 @@ i play on 1.25x gamma so if they look dark sorry nothin i can do
   
 # [poemchan](https://subahibi.s-ul.eu/XetIU3hF) 
 ![screenshot084](https://user-images.githubusercontent.com/115696505/220438849-24a30d57-f7fb-4a87-972f-f9f43281c016.jpg)
+  
+# [U+2638](https://subahibi.s-ul.eu/yukBcbZ5) 
+![screenshot086](https://user-images.githubusercontent.com/115696505/222929419-d353a58b-0691-4953-9b0d-72456ae149b6.jpg)
 
 
