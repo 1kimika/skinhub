@@ -103,3 +103,6 @@ i play on 1.25x gamma so if they look dark sorry nothin i can do
 
 # [makima ultra](https://subahibi.s-ul.eu/g3S4mHGX) 
 ![screenshot091](https://user-images.githubusercontent.com/115696505/229401571-89d29f43-6031-4015-8751-39304d1730fd.jpg)
+  
+# [seraph](https://subahibi.s-ul.eu/WuQzGpbu) 
+![screenshot093](https://user-images.githubusercontent.com/115696505/229402320-4296fb9d-3ae4-43f7-a82b-054ba8865760.jpg)
