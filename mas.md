@@ -106,3 +106,6 @@ i play on 1.25x gamma so if they look dark sorry nothin i can do
   
 # [seraph](https://subahibi.s-ul.eu/WuQzGpbu) 
 ![screenshot093](https://user-images.githubusercontent.com/115696505/229402320-4296fb9d-3ae4-43f7-a82b-054ba8865760.jpg)
+  
+# [1gloomy](https://subahibi.s-ul.eu/TGBtyHB1) 
+![screenshot097](https://user-images.githubusercontent.com/115696505/230603993-fecb2257-7d3b-458f-8760-8aa103aba880.jpg)
